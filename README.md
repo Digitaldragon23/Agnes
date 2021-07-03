@@ -1,2 +1,2 @@
 # Agnes
-To Assist me
+To Assist yourself
